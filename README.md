@@ -5,7 +5,7 @@ Ingeniero en Telecomunicaciones con visión en la Innovación Educativa y la tra
 
 📘 Innovación educativa
 💡 Ingeniería aplicada al aprendizaje
-🧠 Metodologías activas y tecnología educativa
+🧠 Metodologías activas y tecnología disruptivas
 
 ✨ Te invito a explorar mi portafolio interactivo desarrollado en Genially:
 
